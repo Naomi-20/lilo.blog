@@ -11,8 +11,6 @@ Wir alle waren schon einmal in einem Museum und haben Ausstellungen besucht, ohn
 
 Eliah Siegwart, Naomi Pauli
 
-![]()
-
 Hinter Blättern versteck sieht man ein beiges Gebäude, es ist das berühmte Naturhistorische Museum in Bern. Im Gebäude befinden sich umherwirbelnde Schüler und im Eingangsbereich riecht es nach Essen. Die Eltern helfen den Kindern in der Garderobe direkt am Eingang, die Jacken auszuziehen. Denise Mast taucht auf, sie ist eine dieser Heldinnen, sie läuft die Betontreppe, welche man vom Eingang zentral sieht, hinunter. Sie trägt einen grauen Pullover und eine schwarze Hose, ihre braunen Haare sind nach hinten gebunden, ihre Haut ist mit Tattoos geschmückt. Ganz oben ist der Pausenraum der Mitarbeitenden. Es riecht nach Kaffee, an verschiedenen Tischen sitzen plaudernde Menschen, die vermutlich gerade Mittagspause machen. Denise Mast arbeitet hier nun schon seit ein paar Jahren, vorher hat sie alles Mögliche ausprobiert und viel Erfahrung in verschiedenen Berufen gesammelt. Im Naturhistorischen Museum arbeitet sie als Eventtechnikerin, ihre Aufgaben sind vielfältig und keinesfalls uninteressant. Man fragt sich schon fast, was sie denn eigentlich nicht macht. Auch sie leistet einen grossen Beitrag dazu, dass im Museum alles so gut funktioniert.  
 
 ## Das Naturhistorische Museum Bern
