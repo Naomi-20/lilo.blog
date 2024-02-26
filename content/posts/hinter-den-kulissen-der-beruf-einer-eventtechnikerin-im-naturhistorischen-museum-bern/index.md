@@ -37,7 +37,7 @@ Die Vielfältigkeit. Meine Arbeit empfinde ich als spannend und ich schätze es 
 
 > „Ich habe hier im Naturhistorischen Museum sehr viel Freiheit und werde unterstützt, auch wenn ich selbst ein Projekt starten will, wie z.B. etwas zu erneuern.“ (Denise Mast)
 
-#### Woran arbeiten Sie momentan? 
+#### Woran arbeiten Sie momentan?
 
 Gewisse Sachen müssen an der momentanen Sonderausstellung optimiert werden, da helfe ich mit. Es gibt ausserdem eine neue, kleine Ausstellung, welche bald eröffnet wird. Der Bau läuft bereits, ich bin für das Licht zuständig. Bei Ausstellungen, welche schon länger stehen, wie z.B. „Barry“, muss ich gewisse Dinge reparieren, die nicht mehr funktionieren oder ersetzen, da es keine entsprechenden Ersatzteile mehr gibt.
 
@@ -45,11 +45,11 @@ Gewisse Sachen müssen an der momentanen Sonderausstellung optimiert werden, da 
 
 Es ist so, dass die Planungsphase viel länger dauert als die Umsetzung. In der ersten Phase spielen die Kuratoren und die Projektleitung eine grosse Rolle. Je nach Ausstellungsprojekt arbeiten wir mit externen Szenographen zusammen, welche die Ideen und Vorstellungen des Projektteams umsetzen. Im ganzen Ablauf wird bereits relativ früh besprochen, wie etwas umgesetzt werden könnte. Der Ideenfindungsprozess dauert sehr lange, danach geht zuerst um die Kosten, bevor schlussendlich der Startschuss zum Bau fällt und wir mit unserer Arbeit beginnen können. 
 
-#### Man hat das Gefühl, das man die Person hinter Ihrer Arbeit gar nicht sieht. Wünschten Sie sich manchmal, dass die Leute wüssten, wer hinter dieser Arbeit steckt?
+#### Man hat das Gefühl, dass man die Person hinter Ihrer Arbeit gar nicht sieht. Wünschten Sie sich manchmal, dass die Leute wüssten, wer hinter dieser Arbeit steckt?
 
 Nein, aber so bin vielleicht einfach ich von meinem Charakter her. Mir ist viel wichtiger, dass die Zusammenarbeit im Team gut funktioniert hat. Wenn ich meinen beruflichen Werdegang anschaue, war ich immer hinter den Kulissen, weil ich die das Rampenlicht nicht brauche und auch nicht mag. Abgesehen davon ist es in meiner Rolle schon so, dass ich Wertschätzung bekomme und gesehen wird, was ich mache.
 
-#### Wie denken Sie, wird sich das Naturhistorische Museum in der Zukunft verändern? 
+#### Wie denken Sie, wird sich das Naturhistorische Museum in der Zukunft verändern?
 
 Ich denke, es wird Veränderungen geben, wenn man z.B. schaut, wie die Ausstellungen jetzt sind, im Gegensatz zu früher. Es ist alles viel interaktiver, technischer, wie auch baulich viel anspruchsvoller geworden. Ein zunehmend wichtiger Aspekt ist die Nachhaltigkeit, darauf legen wir sehr grossen Wert. Die Nachhaltigkeit bringt Veränderungen mit sich an die wir uns anpassen müssen. Wir können nicht mehr alles so machen wie früher, wir müssen neue Wege finden. Es wird sich ausserdem intern viel ändern, da wir haben viel Mitarbeitende haben, die seit 20, 30 Jahren hier sind. Es werden in nächster Zeit relativ viele Leute pensioniert, das bedeutet, dass viele neue Mitarbeitende zu uns stossen und neue Perspektiven einbringen werden.
 
