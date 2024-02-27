@@ -27,7 +27,7 @@ Nicht nur der Erfolg des Naturhistorischen Museums ist bemerkenswert, sondern au
 {{<box>}}
 **Entstehung des Museums** 
 
-Das Naturhistorische Museum Bern wurde im Jahr 1832 gegründet. Dies geschah auf Beschluss des Stadtrates. Somit gilt es als ältestes Museum von Bern. Die eigentlichen Anfänge führen aber aufs Ende des 17. Jahrhunderts zurück. Zu dieser Zeit gab es in der Stadtbibliothek ein Naturalienkabinett, in welchem unter anderem Mineralien, Gesteine und sehr vieles mehr ausgestellt waren. Jahre später folgte dann der Beschluss, eine von der Bibliothekskommission unabhängige Museumskommission zu etablieren. Somit war das Naturhistorische Museum in Bern geboren
+Das Naturhistorische Museum Bern wurde im Jahr 1832 gegründet. Dies geschah auf Beschluss des Stadtrates. Somit gilt es als ältestes Museum von Bern. Die eigentlichen Anfänge führen aber aufs Ende des 17. Jahrhunderts zurück. Zu dieser Zeit gab es in der Stadtbibliothek ein Naturalienkabinett, in welchem unter anderem Mineralien, Gesteine und sehr vieles mehr ausgestellt waren. Jahre später folgte dann der Beschluss, eine von der Bibliothekskommission unabhängige Museumskommission zu etablieren. Somit war das Naturhistorische Museum in Bern geboren.
 {{</box>}}
 
 ### Sonderausstellungen
